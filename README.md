@@ -1,16 +1,17 @@
-## Hi there 👋
+## eai amores da minha vida???❤️
 
-<!--
-**gabssqueen/gabssqueen** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+My name is Caroline Forbes
 
-Here are some ideas to get you started:
+- Im a vampire of 18 years old
+- Im blonde and i have green eyes
+- I was transformed for Katherine Pierce with the blood of Damon Salvatore in my sistem
+- My best frinds are Elena Gilbert and Bonnie Bennett and my husband is Stefan Salvatore
+- I have two daughers, called Josie and Lizzie, that were placed in my belly through a spell cast by the Gemini clan
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+*** Voce pode entrar em contato comigo através do meu 📧
+
+00001084471188sp@al.educacao.sp.gov.br
+
+@gabssqueen
+
+![](https://media1.tenor.com/m/3i3Iii6d2PsAAAAC/caroline-forbes.gif)
